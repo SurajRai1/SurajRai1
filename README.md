@@ -30,7 +30,7 @@ I'm always open to connecting with fellow enthusiasts, learners, and professiona
 
 Have a project idea, collaboration proposal, or just want to chat about technology? You can reach me through:
 
-- **Email:** ryurai32@gmail.com
+- **Email:** surajraiglobal@gmail.com
 
 Looking forward to connecting with like-minded individuals and exploring the endless possibilities of coding and tech together!
 
